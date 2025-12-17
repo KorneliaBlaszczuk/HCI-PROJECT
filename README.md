@@ -1,3 +1,0 @@
-# HCI-PROJECT
-
-GLHF Karolina
